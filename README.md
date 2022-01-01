@@ -1,1 +1,1 @@
-React pet-projects 🔵
+React pet-projects ⚛️🔵
